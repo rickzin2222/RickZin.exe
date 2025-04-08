@@ -29,4 +29,4 @@ Se você quiser conversar sobre programação, tecnologia ou qualquer outro assu
 # E-mail: ricksilva3455@gmail.com
 
 # 📚 Aprendizado Contínuo
-Estou sempre em busca de aprender mais e melhorar minhas habilidades. Se você tiver dicas, recursos ou oportunidades para compartilhar, adoraria ouvir!
+Estou sempre em busca de aprender mais e melhorar minhas habilidades. Se você tiver dicas, recursos ou oportunidades para compartilhar, adoraria ouvir!!![Captura de Tela (1)](https://github.com/user-attachments/assets/a8b3adac-623c-4471-8ce4-8decbc5cbab6)
